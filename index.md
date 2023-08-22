@@ -1,5 +1,5 @@
 ---
-title: "adora's random thoughts and stuff"
+title: "home"
 ---
 
-hello world how's it goin
+the coolest place on the internet. you literally can't find a better one.
